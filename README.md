@@ -1,1 +1,1 @@
-# s15aula2.
+Em meio à temporada de fogo antecipada, o Pantanal de Mato Grosso do Sul está sendo devastado pelos focos de incêndios. De 1º de janeiro até o último domingo (16), 338.675 hectares do bioma já foram consumidos pelas chamas. A área devastada é duas vezes o tamanho da cidade de São Paulo.
